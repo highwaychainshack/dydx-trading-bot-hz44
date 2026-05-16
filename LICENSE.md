@@ -1,4 +1,4 @@
-# 
+# AI-powered dydx trading bot | fee-optimization + gas-optimization offers the most advanced dydx trading bot, with fee-optimization and gas-optimization. Ideal for professional
 
 
 
